@@ -1,1 +1,1 @@
-# kalkula-ka
+http://calcu.great-site.net/
